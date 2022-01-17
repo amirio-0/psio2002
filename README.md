@@ -1,5 +1,5 @@
 # Psio2002(squad)
-## The best apex plaers
+## The best apex players
 
 Psio2002 было основано совсем недавно, но уже завоевало серца трех его участников:
 - Кароль лута и самый лучший на планете amirio_0 (capitan, game lider) 
