@@ -9,9 +9,9 @@ Psio2002 было основано совсем недавно, но уже за
 
 ## Our rotation
 ![rotation](https://lh3.googleusercontent.com/LseaOe7elxm3kL-_-xikyBSBvJ9aDZEfI8fOlMx7WkfcHVZDFYzavt7eqGcLlSo7FoX6Bdon9tUXI9H3u2Loz88)
-1)сканет
-2)эскейпер
-3)Дефендер
+1*)сканет
+2*)эскейпер
+3*)Дефендер
 
 ## Lovely guns
 
