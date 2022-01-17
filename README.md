@@ -3,7 +3,7 @@
 
 Psio2002 было основано совсем недавно, но уже завоевало серца трех его участников:
 - Кароль лута и самый лучший на планете amirio_0 (capitan, game lider) 
-- Дамагер и просто хороший человек negizo_0(damager, map photoshoper)
+- Дамагер и просто хороший человек negizo_0(damager, map photoshoper, streamer) [Твич Negizo_0](https://www.twitch.tv/negizo_0)
 - Спидранер, стал играть лучше после ... kanaiBM(driver, )   
 [p.s:kanaiBM продает свой турбовый [Ford Probe](https://www.mashina.kg/details/ford-probe-61b4c5548937c724452850)
 
