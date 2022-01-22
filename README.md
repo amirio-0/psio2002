@@ -8,8 +8,7 @@ Psio2002 было основано совсем недавно, но уже за
 [p.s:kanaiBM продает свой турбовый [Ford Probe](https://www.mashina.kg/details/ford-probe-61b4c5548937c724452850)
 
 ## Our rotation
-![rotation
-(https://lh5.googleusercontent.com/6sKVPEc8SYY3ZFXOr1lLG29DOEzthAD24JFy6hu22WZZVEbHqcXh257_8g1MO61vjJ5hykQU12dxubputrzmmJFgM5j72pGrxbQg4q6mcJ5vvKuxYGFjLyvEGIned1lxsg=w1280)
+![rotation](https://lh5.googleusercontent.com/6sKVPEc8SYY3ZFXOr1lLG29DOEzthAD24JFy6hu22WZZVEbHqcXh257_8g1MO61vjJ5hykQU12dxubputrzmmJFgM5j72pGrxbQg4q6mcJ5vvKuxYGFjLyvEGIned1lxsg=w1280)
 
 1)сканер <br/>
 2)эскейпер<br/>
