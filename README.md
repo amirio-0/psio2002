@@ -9,6 +9,7 @@ Psio2002 было основано совсем недавно, но уже за
 
 ## Our rotation
 ![rotation](https://lh5.googleusercontent.com/6sKVPEc8SYY3ZFXOr1lLG29DOEzthAD24JFy6hu22WZZVEbHqcXh257_8g1MO61vjJ5hykQU12dxubputrzmmJFgM5j72pGrxbQg4q6mcJ5vvKuxYGFjLyvEGIned1lxsg=w1280)
+![Untitled](https://user-images.githubusercontent.com/97883299/150636193-b2e13b5a-d9de-4753-8d94-a9c7d7e8f71c.jpg)
 
 1)сканер <br/>
 2)эскейпер<br/>
